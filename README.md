@@ -1,4 +1,6 @@
 ### Hey there, I'm Santorar
+![Nayeon waving](https://media.tenor.com/lo1hz5plfhsAAAAC/twice-nayeon.gif)
+
 How are you doing? Thank you for being here today, if I am not coding or doing school work. I am either watching kdrama, listening to music(kpop, pop, rock, jpop, black metal, etc...) or ricing.
 Here are few things about me.
 - I'm a Linux and Open Source Enthusiast
